@@ -1,3 +1,3 @@
 # Gym-Ñam
 
-Asier Urbina
+Asier Urbina, el Rey de la baraja
